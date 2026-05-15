@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated Trading Bot for grid trading bot for futures | scalping & order-book-analysis, the #1 grid trading bot for futures. Includes scalping and
 
 
 
